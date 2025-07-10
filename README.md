@@ -2,7 +2,7 @@
 - 👀 I’m interested in many things.
 - 🌱 I’m currently learning Web Aplication Development.
 - 💞️ I’m looking to collaborate on whatever.
-- 📫 How to reach me josegarcia@birt.eus
+- 📫 How to reach me txema.garcia.conde@gmail.con
 - 😄 Pronouns: Txema
 - ⚡ Fun fact: ...
 
